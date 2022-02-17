@@ -3,6 +3,8 @@
 - 🌱 I’m currently learning GOLang...
 - 💞️ I’m looking to collaborate on PHP - PYTHON CYBER SEC PROJECTS...
 - 📫 How to reach me ... see below
+- -------------------------------------CONTACT-----------------------------------------
 TWITTER CONTACT : https://twitter.com/Digital_Leakz
 FACEBOOK CONTACT : https://www.facebook.com/profile.php?id=100074561941334
 DISCORD CONTACT : bl4ckGOKU#4303
+TELEGRAM : https://t.me/blackgokuLEkrrR
